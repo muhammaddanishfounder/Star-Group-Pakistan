@@ -1,6 +1,6 @@
 # Star-Group-Pakistan
 Star Group Pakistan is a dynamic umbrella organization founded by Muhammad Danish, dedicated to delivering integrated solutions across real estate, digital innovation, and community development.
-Entrepreneurship is not only about building companies; it is about building vision, opportunities, and impact. My journey as an entrepreneur began with a simple belief that innovation, dedication, and strategic thinking can transform ideas into successful ventures. Over the years, this belief led me to establish Star Group Pakistan, an umbrella organization focused on real estate development, digital innovation, and community empowerment. STAY TUNED…
+Entrepreneurship is not only about building companies; it is about building vision, opportunities, and impact. My journey as an entrepreneur began with a simple belief that innovation, dedication, and strategic thinking can transform ideas into successful ventures. Over the years, this belief led me to establish Star Group Pakistan, an umbrella organization focused on real estate development, digital innovation, and community empowerment.
 
 As the Founder and CEO, my goal is to create businesses that deliver real value to people and contribute to Pakistan’s economic growth. Through Star Developments, we provide investment opportunities in residential, commercial, and high-rise real estate projects, especially in Islamabad. Our aim is to help investors and families find reliable property solutions that offer long-term value and security.
 
